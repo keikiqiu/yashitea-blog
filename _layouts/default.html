@@ -1,0 +1,35 @@
+<!DOCTYPE html>
+<html lang="en">
+<head>
+  <meta charset="UTF-8">
+  <meta name="viewport" content="width=device-width, initial-scale=1.0">
+  <title>{% if page.title %}{{ page.title }} | {% endif %}{{ site.title }}</title>
+  <meta name="description" content="{% if page.excerpt %}{{ page.excerpt | strip_html | truncate: 160 }}{% else %}{{ site.description }}{% endif %}">
+  <link rel="stylesheet" href="{{ site.baseurl }}/assets/css/style.css">
+  <meta name="google-site-verification" content="">
+  {% seo %}
+</head>
+<body>
+  <header class="site-header">
+    <div class="container">
+      <a href="{{ site.baseurl }}/" class="site-logo">{{ site.title }}</a>
+      <nav>
+        <a href="{{ site.baseurl }}/">Home</a>
+        <a href="https://yashitea.com">Yashi Tea Shop</a>
+        <a href="https://yashitea.com/blog">More Articles</a>
+      </nav>
+    </div>
+  </header>
+
+  <main class="container">
+    {{ content }}
+  </main>
+
+  <footer class="site-footer">
+    <div class="container">
+      <p>&copy; {{ "now" | date: "%Y" }} <a href="https://yashitea.com">Yashi Tea</a> — Discover the Art of Chinese Tea.</p>
+      <p><small>This article originally appeared on <a href="https://yashitea.com">YashiTea.com</a> — your guide to premium Chinese tea.</small></p>
+    </div>
+  </footer>
+</body>
+</html>
