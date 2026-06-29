@@ -1,0 +1,22 @@
+---
+layout: default
+---
+<article class="post">
+  <header class="post-header">
+    <h1>{{ page.title }}</h1>
+    <p class="post-meta">
+      <time datetime="{{ page.date | date_to_xmlschema }}">{{ page.date | date: "%B %d, %Y" }}</time>
+      {% if page.author %} • {{ page.author }}{% endif %}
+    </p>
+  </header>
+
+  <div class="post-content">
+    {{ content }}
+  </div>
+
+  <div class="post-footer">
+    <hr>
+    <p><em>Originally published on <a href="https://yashitea.com">YashiTea.com</a> — your complete guide to Chinese tea culture, brewing techniques, and premium tea selections.</em></p>
+    <p><a href="https://yashitea.com/blog" class="btn">📖 Read more tea articles on Yashi Tea</a></p>
+  </div>
+</article>
