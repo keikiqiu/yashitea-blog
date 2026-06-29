@@ -1,0 +1,35 @@
+title: Yashi Tea Blog
+tagline: Discover the Art of Chinese Tea
+description: >-
+  Yashi Tea brings you the finest Chinese tea guides, brewing tutorials,
+  and cultural insights. Explore Dan Cong oolong, white tea, pu-erh,
+  and traditional gongfu tea ceremony.
+url: "https://keikiqiu.github.io/yashitea-blog"
+baseurl: "/yashitea-blog"
+
+author: Yashi Tea
+twitter:
+  username:
+social:
+  name: Yashi Tea
+  links:
+    - https://yashitea.com
+
+google_analytics:
+theme:
+plugins:
+  - jekyll-seo-tag
+  - jekyll-sitemap
+
+markdown: kramdown
+highlighter: rouge
+
+permalink: /:title/
+
+defaults:
+  - scope:
+      path: ""
+      type: "posts"
+    values:
+      layout: "post"
+      author: "Yashi Tea"
