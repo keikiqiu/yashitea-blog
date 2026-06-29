@@ -1,0 +1,28 @@
+---
+layout: default
+title: Yashi Tea Blog
+---
+
+<section class="hero">
+  <h1>Discover the Art of Chinese Tea</h1>
+  <p>Brewing guides, tea culture, tasting notes, and the stories behind every cup.</p>
+  <a href="https://yashitea.com" class="btn">🍵 Visit Yashi Tea Shop</a>
+</section>
+
+<section class="posts-list">
+  <h2>Latest Articles</h2>
+  {% for post in site.posts %}
+  <article class="post-card">
+    <h3><a href="{{ site.baseurl }}{{ post.url }}">{{ post.title }}</a></h3>
+    <p class="post-meta">{{ post.date | date: "%B %d, %Y" }}</p>
+    <p>{{ post.excerpt | strip_html | truncate: 200 }}</p>
+    <a href="{{ site.baseurl }}{{ post.url }}" class="read-more">Read More →</a>
+  </article>
+  {% endfor %}
+</section>
+
+<section class="about">
+  <h2>About Yashi Tea</h2>
+  <p>At <a href="https://yashitea.com">Yashi Tea</a>, we are passionate about sharing the finest Chinese tea experience. From the legendary Dan Cong oolong teas of Fenghuang Mountain to delicate white teas and aged pu-erh, we explore the rich traditions and health benefits of tea culture.</p>
+  <a href="https://yashitea.com" class="btn">🛒 Explore Our Teas</a>
+</section>
