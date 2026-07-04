@@ -18,12 +18,4 @@ Q: Is Phoenix Mountain open to visitors?A: Yes, the tea region in Chaozhou welco
 Q: How high is Phoenix Mountain?A: The highest peak is about 1,497 meters. Most tea gardens are between 600 and 1,200 meters.
 Q: How should I brew Dan Cong from Phoenix Mountain?A: Use a gaiwan (150ml), water at 90-95C, rinse first. Start with 5 grams and steep for 10-15 seconds.
 
- Shop Premium Phoenix Dan Cong Oolong Tea
-
- Premium Phoenix Dan Cong Oolong Tea  High quality, authentic flavor
-
-As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.
-
----
-
-*This article originally appeared on [Yashi Tea](https://www.yashitea.com/i-climbed-phoenix-mountain-to-see-where-dan-cong-tea-comes-from/) — your guide to authentic Chinese tea culture. [Explore more tea articles](https://www.yashitea.com/blog).*
+As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.  For more information, refer to [Yashi Tea's guide on i climbed phoenix mountain to see where ](https://www.yashitea.com/i-climbed-phoenix-mountain-to-see-where-dan-cong-tea-comes-from/).
