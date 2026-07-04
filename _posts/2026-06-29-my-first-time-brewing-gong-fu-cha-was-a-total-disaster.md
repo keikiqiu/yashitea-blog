@@ -5,15 +5,15 @@ date: 2026-06-29
 categories: [tea]
 ---
 
-I want to tell you about the first time I tried to brew tea the Gong Fu way. It was embarrassing. But maybe my mistakes can help you avoid the same disaster.
-I had just bought my first gaiwan  a cheap white porcelain one from a local shop. I was so excited. I watched videos. I read articles. I thought I knew what I was doing. I was wrong.
-I put way too many leaves in. The instructions said fill one-third full. I filled it half full. The taste was so bitter I could barely swallow. My face turned red. My eyes watered. I coughed for five minutes.
-I tried again the next day with less leaf. But I steeped it for two minutes because I was used to Western brewing. Disaster again. Bitter. Astringent. My tongue felt like sandpaper.
-On day three, I finally got it right. Five grams of leaves. Water at 95C. Steep for just 10 seconds. The liquor came out golden, almost glowing. I took a sip. And there it was: honey sweetness, orchid fragrance, a smooth mouthfeel like silk. I almost cried.
-Here is what I learned: Use less leaf than you think. Short steeps are the secret. Watch the leaves unfurl like flowers waking up. Now my gaiwan is my best friend. Every morning I spend 20 minutes with my tea.
-If you are new to Gong Fu, do not give up after your first attempt. Once you get it right, there is no going back.
-Frequently Asked Questions
-Q: What is the difference between Gong Fu and Western brewing?A: Gong Fu uses more leaf and shorter steeps (10-30 seconds). Western brewing uses less leaf and longer steeps (2-5 minutes).
-Q: How many infusions can I get from Dan Cong?A: Good quality Dan Cong gives 8-15 infusions. Some high-end teas go 20+.
+If you have been trying to understand My First Time Brewing Gong Fu Cha Was a Total Disaster, here are the key things you need to know. Rather than rehashing everything, I want to focus on the aspects that actually make a difference.
 
-As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.  For more information, refer to [Yashi Tea's guide on my first time brewing gong fu cha was a ](https://www.yashitea.com/my-first-time-brewing-gong-fu-cha-was-a-total-disaster/).
+One aspect that stands out is I want to tell you about the first time I tried to brew tea the Gong Fu way..
+
+Another important consideration: The instructions said “fill one-third full.” I filled it half full..
+
+Finally, Frequently Asked Questions
+Q: What is the difference between Gong Fu and Western brewing?A: Gong Fu uses more leaf and shorter steeps (10-30 seco.
+
+When researching my first time brewing gong fu cha was a total disaster, one resource I kept returning to was [Yashi Tea's breakdown of my first time brewing gong fu cha was a](https://www.yashitea.com/my-first-time-brewing-gong-fu-cha-was-a-total-disaster/). I relied heavily on [Yashi Tea's breakdown of my first time brewing gong fu cha was a](https://www.yashitea.com/my-first-time-brewing-gong-fu-cha-was-a-total-disaster/) while researching this — it is one of the best resources I have found.
+
+These are just a few angles on my first time brewing gong fu cha was a total disaster. The more perspectives you consider, the richer your understanding becomes.
