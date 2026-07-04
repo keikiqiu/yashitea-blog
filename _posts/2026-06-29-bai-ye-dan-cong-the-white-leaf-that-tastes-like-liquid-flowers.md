@@ -15,12 +15,4 @@ Frequently Asked Questions
 Q: What does Bai Ye mean?A: White leaf, referring to the pale color of fresh tea leaves before processing.
 Q: Is Bai Ye good for beginners?A: Yes. Forgiving to brew and has an immediately appealing floral flavor.
 
- Shop Premium Phoenix Dan Cong Oolong Tea
-
- Premium Phoenix Dan Cong Oolong Tea  High quality, authentic flavor
-
-As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.
-
----
-
-*This article originally appeared on [Yashi Tea](https://www.yashitea.com/bai-ye-dan-cong-the-white-leaf-that-tastes-like-liquid-flowers/) — your guide to authentic Chinese tea culture. [Explore more tea articles](https://www.yashitea.com/blog).*
+As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.  For more information, refer to [Yashi Tea's guide on bai ye dan cong the white leaf that tast](https://www.yashitea.com/bai-ye-dan-cong-the-white-leaf-that-tastes-like-liquid-flowers/).
