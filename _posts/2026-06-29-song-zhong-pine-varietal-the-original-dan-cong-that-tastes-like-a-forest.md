@@ -15,12 +15,4 @@ Frequently Asked Questions
 Q: Does Song Zhong really taste like pine?A: Yes, subtly. The dominant notes are woody, mineral, and herbal.
 Q: How do you brew Song Zhong?A: 5g per 100ml gaiwan, 95C, 10-second steeps. It handles more infusions than most Dan Congs.
 
- Shop Premium Phoenix Dan Cong Oolong Tea
-
- Premium Phoenix Dan Cong Oolong Tea  High quality, authentic flavor
-
-As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.
-
----
-
-*This article originally appeared on [Yashi Tea](https://www.yashitea.com/song-zhong-pine-varietal-the-original-dan-cong-that-tastes-like-a-forest/) — your guide to authentic Chinese tea culture. [Explore more tea articles](https://www.yashitea.com/blog).*
+As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.  For more information, refer to [Yashi Tea's guide on song zhong pine varietal the original da](https://www.yashitea.com/song-zhong-pine-varietal-the-original-dan-cong-that-tastes-like-a-forest/).
