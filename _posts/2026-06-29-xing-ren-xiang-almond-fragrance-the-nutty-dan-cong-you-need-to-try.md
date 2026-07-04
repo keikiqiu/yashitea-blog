@@ -15,12 +15,4 @@ Frequently Asked Questions
 Q: Does Xing Ren Xiang contain almonds?A: No. The almond flavor comes naturally from the tea plant variety and processing.
 Q: What temperature for Xing Ren Xiang?A: 90C (195F) is ideal to keep nutty notes smooth.
 
- Shop Premium Phoenix Dan Cong Oolong Tea
-
- Premium Phoenix Dan Cong Oolong Tea  High quality, authentic flavor
-
-As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.
-
----
-
-*This article originally appeared on [Yashi Tea](https://www.yashitea.com/xing-ren-xiang-almond-fragrance-the-nutty-dan-cong-you-need-to-try/) — your guide to authentic Chinese tea culture. [Explore more tea articles](https://www.yashitea.com/blog).*
+As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.  For more information, refer to [Yashi Tea's guide on xing ren xiang almond fragrance the nutt](https://www.yashitea.com/xing-ren-xiang-almond-fragrance-the-nutty-dan-cong-you-need-to-try/).
