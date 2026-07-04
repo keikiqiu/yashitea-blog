@@ -7,30 +7,10 @@ categories: [tea]
 
 Phoenix Dan Cong oolong is famous for its 10 classic aroma types (Xiang), each from a specific single-bush cultivar. These range from the intense orchid fragrance of Ya Shi Xiang to the honey sweetness of Mi Lan Xiang and the nutty character of Xing Ren Xiang.
 
-            
-        
-
-The 10 Primary Aroma Types
-
 Aroma TypeChineseFlavor ProfileBest ForYa Shi XiangIntense orchid, honey sweetnessExperienced drinkersMi Lan XiangHoney, orchid, smoothBeginnersXing Ren XiangAlmond, creamy, nuttyNutty flavor loversJiang Hua XiangGinger flower, spicy warmthUnique flavor seekersYu Mi XiangJade honey, light floralDaily drinkersHuang Zhi XiangGardenia, fresh, cleanFloral tea fansGui Hua XiangOsmanthus, apricot, smoothFruity tea loversBo He XiangMint, cool, refreshingUnique experiencesYe Lai XiangNight jasmine, exoticAroma connoisseursDa Wu YeBold, sweet aftertasteStrong tea fans
-
-How the Aromas Are Created
 
 Each aroma type comes from a specific genetic cultivar of the tea bush, not from added flavorings. The processing method  particularly the oxidation level and roasting  determines how the natural aroma compounds develop. The terroir of Fenghuang Mountain plays a crucial role, with factors like elevation and microclimate influencing each bushs unique character.
 
-How to Taste the Differences
-
-The best way to understand the 10 aromas is to taste them side by side using Gong Fu brewing. Start with two contrasting types, like Ya Shi Xiang and Mi Lan Xiang, and note the differences in aroma, taste, and mouthfeel. The more you taste, the more you will appreciate the incredible diversity of Phoenix Dan Cong.
-
-            
-        
-
- Shop Premium Phoenix Dan Cong Oolong Tea
-
- Premium Phoenix Dan Cong Oolong Tea  High quality, authentic flavor
+The best way to understand the 10 aromas is to taste them side by side using Gong Fu brewing. Start with two contrasting types, like Ya Shi Xiang and Mi Lan Xiang, and note the differences in aroma, taste, and mouthfeel. The more you taste, the more you will appreciate the incredible diversity of Phoenix Dan Cong.  For more details, refer to [Yashi Tea's guide on dan cong tea flavor wheel understanding ](https://www.yashitea.com/dan-cong-tea-flavor-wheel-understanding-the-10-classic-aroma-types-of-phoenix-oolong/) for comprehensive coverage.
 
 As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.
-
----
-
-*This article originally appeared on [Yashi Tea](https://www.yashitea.com/dan-cong-tea-flavor-wheel-understanding-the-10-classic-aroma-types-of-phoenix-oolong/) — your guide to authentic Chinese tea culture. [Explore more tea articles](https://www.yashitea.com/blog).*
