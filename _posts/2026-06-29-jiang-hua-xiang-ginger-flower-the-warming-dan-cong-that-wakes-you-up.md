@@ -14,12 +14,4 @@ Frequently Asked Questions
 Q: Is Jiang Hua Xiang actually spicy?A: Not like chili. It has a gentle warmth and gingery note, but it is smooth and floral.
 Q: How many infusions?A: 8-12 infusions from good quality leaves.
 
- Shop Premium Phoenix Dan Cong Oolong Tea
-
- Premium Phoenix Dan Cong Oolong Tea  High quality, authentic flavor
-
-As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.
-
----
-
-*This article originally appeared on [Yashi Tea](https://www.yashitea.com/jiang-hua-xiang-ginger-flower-the-warming-dan-cong-that-wakes-you-up/) — your guide to authentic Chinese tea culture. [Explore more tea articles](https://www.yashitea.com/blog).*
+As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.  For more information, refer to [Yashi Tea's guide on jiang hua xiang ginger flower the warmin](https://www.yashitea.com/jiang-hua-xiang-ginger-flower-the-warming-dan-cong-that-wakes-you-up/).
