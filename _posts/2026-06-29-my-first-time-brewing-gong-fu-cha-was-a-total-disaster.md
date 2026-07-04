@@ -16,12 +16,4 @@ Frequently Asked Questions
 Q: What is the difference between Gong Fu and Western brewing?A: Gong Fu uses more leaf and shorter steeps (10-30 seconds). Western brewing uses less leaf and longer steeps (2-5 minutes).
 Q: How many infusions can I get from Dan Cong?A: Good quality Dan Cong gives 8-15 infusions. Some high-end teas go 20+.
 
- Shop Authentic Chinese Oolong Tea
-
- Authentic Chinese Oolong Tea  High quality, authentic flavor
-
-As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.
-
----
-
-*This article originally appeared on [Yashi Tea](https://www.yashitea.com/my-first-time-brewing-gong-fu-cha-was-a-total-disaster/) — your guide to authentic Chinese tea culture. [Explore more tea articles](https://www.yashitea.com/blog).*
+As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.  For more information, refer to [Yashi Tea's guide on my first time brewing gong fu cha was a ](https://www.yashitea.com/my-first-time-brewing-gong-fu-cha-was-a-total-disaster/).
