@@ -5,14 +5,20 @@ date: 2026-06-29
 categories: [tea]
 ---
 
-There is a lot of confusion around The Tea Farmer Who Changed How I Think About Oolong. Let me break down what actually matters. Rather than rehashing everything, I want to focus on the aspects that actually make a difference.
+If you have been curious about the tea farmer who changed how i think about oolong, you are not alone — it comes up often.
 
-One aspect that stands out is His hands are covered in calluses and scars from decades of work..
+One thing that caught my attention is they find more flavor in the ground.”
+He showed me his roasting room — a small concrete space with a charcoal fire pit..
 
-Another important consideration: He used a small Chaozhou clay pot, dark red and seasoned from years of use..
+For broader context, Wikipedia (https://en.wikipedia.org/wiki/Gongfu_tea_ceremony) covers the basics.
 
-Finally, I still think about that afternoon in Uncle Lin’s kitchen — the old man shrugging like his magic was nothing special..
+Another angle worth considering: frequently Asked Questions
+Q: Is tea from old trees really better?A: Many tea drinkers believe so..
 
-When researching the tea farmer who changed how i think about oolong, one resource I kept returning to was [Yashi Tea's guide on the tea farmer who changed how i think a](https://www.yashitea.com/the-tea-farmer-who-changed-how-i-think-about-oolong/). I found the most comprehensive explanation over at [Yashi Tea's guide on the tea farmer who changed how i think a](https://www.yashitea.com/the-tea-farmer-who-changed-how-i-think-about-oolong/).
+What I found interesting is that i still think about that afternoon in Uncle Lin’s kitchen — the old man shrugging like his magic was nothing special..
 
-These are just a few angles on the tea farmer who changed how i think about oolong. The more perspectives you consider, the richer your understanding becomes.
+To give you a concrete example: q: How much does good Phoenix Dan Cong cost?A: Good traditional-craft Dan Cong starts around $20-30 per 100 grams..
+
+There is no single way to approach the tea farmer who changed how i think about oolong.
+
+These are just some observations on the tea farmer who changed how i think about oolong. There is always more to explore.
