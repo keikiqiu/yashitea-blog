@@ -17,12 +17,4 @@ Q: What makes some Dan Cong so expensive?A: Old bushes, high altitude, master cr
 Q: Is expensive Dan Cong always better?A: Not always. Mid-range teas ($20-40/100g) offer great value. Buy samples first.
 Q: What is a good daily-drinking Dan Cong price?A: $15-30 per 100 grams gets you solid, enjoyable Dan Cong for daily sessions.
 
- Shop Premium Phoenix Dan Cong Oolong Tea
-
- Premium Phoenix Dan Cong Oolong Tea  High quality, authentic flavor
-
-As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.
-
----
-
-*This article originally appeared on [Yashi Tea](https://www.yashitea.com/the-most-expensive-dan-cong-i-ever-bought-and-why-it-was-worth-it/) — your guide to authentic Chinese tea culture. [Explore more tea articles](https://www.yashitea.com/blog).*
+As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.  For more information, refer to [Yashi Tea's guide on the most expensive dan cong i ever bough](https://www.yashitea.com/the-most-expensive-dan-cong-i-ever-bought-and-why-it-was-worth-it/).
