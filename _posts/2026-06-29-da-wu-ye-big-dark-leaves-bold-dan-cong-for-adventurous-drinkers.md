@@ -15,12 +15,4 @@ Frequently Asked Questions
 Q: Is Da Wu Ye for beginners?A: Not recommended. Start with Mi Lan Xiang or Ya Shi Xiang first.
 Q: What food pairs with Da Wu Ye?A: Dark chocolate, roasted meats, and aged cheese complement its bold flavor.
 
- Shop Premium Phoenix Dan Cong Oolong Tea
-
- Premium Phoenix Dan Cong Oolong Tea  High quality, authentic flavor
-
-As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.
-
----
-
-*This article originally appeared on [Yashi Tea](https://www.yashitea.com/da-wu-ye-big-dark-leaves-bold-dan-cong-for-adventurous-drinkers/) — your guide to authentic Chinese tea culture. [Explore more tea articles](https://www.yashitea.com/blog).*
+As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.  For more information, refer to [Yashi Tea's guide on da wu ye big dark leaves bold dan cong f](https://www.yashitea.com/da-wu-ye-big-dark-leaves-bold-dan-cong-for-adventurous-drinkers/).
