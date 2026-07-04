@@ -17,12 +17,4 @@ Frequently Asked Questions
 Q: Is it healthy to drink oolong on an empty stomach?A: It depends on your body. Having a small piece of bread before your session helps.
 Q: How much Dan Cong do you use per morning session?A: About 5 grams for a 120ml gaiwan. That gives 8-10 good infusions over 45 minutes.
 
- Shop Premium Phoenix Dan Cong Oolong Tea
-
- Premium Phoenix Dan Cong Oolong Tea  High quality, authentic flavor
-
-As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.
-
----
-
-*This article originally appeared on [Yashi Tea](https://www.yashitea.com/why-i-wake-up-at-5-am-to-drink-dan-cong-tea/) — your guide to authentic Chinese tea culture. [Explore more tea articles](https://www.yashitea.com/blog).*
+As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.  For more information, refer to [Yashi Tea's guide on why i wake up at   am to drink dan cong ](https://www.yashitea.com/why-i-wake-up-at-5-am-to-drink-dan-cong-tea/).
