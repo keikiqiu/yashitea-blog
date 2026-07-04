@@ -5,14 +5,14 @@ date: 2026-06-29
 categories: [tea]
 ---
 
-After spending time researching Zhi Lan Xiang (Orchid Fragrance): The Elegant Dan Cong That Rewards Patience, I wanted to share the most interesting findings. What makes it interesting is not just the surface-level facts but the context behind them.
+If you have been curious about zhi lan xiang (orchid fragrance): the elegant dan cong that rewards patience, you are not alone — it comes up often.
 
-One aspect that stands out is The kind of tea you drink when you want to feel like a Tang dynasty poet..
+One thing that caught my attention is but for those who take the time, one of the most rewarding Dan Congs..
 
-Another important consideration: I have found Zhi Lan Xiang needs a longer rinse — about 20 seconds — to let the tightly twisted leaves begin opening.
+Another angle worth considering: my first active steep is also longer, about 20 seconds instead of 10..
 
-Finally, Orchid dominant, with layers of white flowers, fresh grass, and a honeydew melon finish..
+What I found interesting is that the orchid note becomes stronger, the texture thickens, the sweetness deepens..
 
-When researching zhi lan xiang (orchid fragrance): the elegant dan cong that rewards patience, one resource I kept returning to was [the zhi lan xiang orchid fragrance the elega guide from Yashi Tea](https://www.yashitea.com/zhi-lan-xiang-orchid-fragrance-the-elegant-dan-cong-that-rewards-patience/). For a more technical breakdown, [the zhi lan xiang orchid fragrance the elega guide from Yashi Tea](https://www.yashitea.com/zhi-lan-xiang-orchid-fragrance-the-elegant-dan-cong-that-rewards-patience/) goes into the specifics better than anywhere else.
+To give you a concrete example: the kind of tea you drink when you want to feel like a Tang dynasty poet..
 
-I found that the more time I spent with zhi lan xiang (orchid fragrance): the elegant dan cong that rewards patience, the more I appreciated its depth.
+These are just some observations on zhi lan xiang (orchid fragrance): the elegant dan cong that rewards patience. There is always more to explore.
