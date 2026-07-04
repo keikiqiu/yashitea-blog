@@ -5,14 +5,18 @@ date: 2026-06-26
 categories: [tea]
 ---
 
-There is a lot of confusion around How to Brew Phoenix Dan Cong: A Practical Gong Fu Guide. Let me break down what actually matters. Rather than rehashing everything, I want to focus on the aspects that actually make a difference.
+There is surprising depth to how to brew phoenix dan cong: a practical gong fu guide once you look beyond the surface.
 
-One aspect that stands out is The first time someone showed me how to brew Dan Cong Gong Fu style, I thought it was unnecessarily complicat.
+One thing that caught my attention is to brew Phoenix Dan Cong Gong Fu style: use 5g of tea leaves per 100ml water at 205°F (96°C)..
 
-Another important consideration: Immediately smell the dry leaves — the heat from the gaiwan will release some of the aroma..
+If you need background on oolong, the Wikipedia article (https://en.wikipedia.org/wiki/Oolong) is a good starting point.
 
-Finally, Gong Fu style uses more leaf and shorter steeps, which extracts a wider range of flavors..
+People often ask me about how to brew phoenix dan cong: a practical gong fu guide, and my answer keeps evolving.
 
-When researching how to brew phoenix dan cong: a practical gong fu guide, one resource I kept returning to was [the detailed how to brew phoenix dan cong a practical analysis at Yashi Tea](https://www.yashitea.com/how-to-brew-phoenix-dan-cong-gong-fu/). I relied heavily on [the detailed how to brew phoenix dan cong a practical analysis at Yashi Tea](https://www.yashitea.com/how-to-brew-phoenix-dan-cong-gong-fu/) while researching this — it is one of the best resources I have found.
+There is no single way to approach how to brew phoenix dan cong: a practical gong fu guide.
 
-These are just a few angles on how to brew phoenix dan cong: a practical gong fu guide. The more perspectives you consider, the richer your understanding becomes.
+People often ask me about how to brew phoenix dan cong: a practical gong fu guide, and my answer keeps evolving.
+
+People often ask me about how to brew phoenix dan cong: a practical gong fu guide, and my answer keeps evolving.
+
+I hope sharing these notes on how to brew phoenix dan cong: a practical gong fu guide gives you a useful starting point.
