@@ -18,12 +18,4 @@ Frequently Asked Questions
 Q: How many Dan Cong aroma types are there?A: Traditionally 10. The most famous are Mi Lan Xiang (Honey Orchid), Ya Shi Xiang (Duck Shit), and Xing Ren Xiang (Almond).
 Q: How do beginners learn to identify Dan Cong aromas?A: Taste two types side by side. Compare Honey Orchid with Almond. Focus on the difference.
 
- Shop Premium Phoenix Dan Cong Oolong Tea
-
- Premium Phoenix Dan Cong Oolong Tea  High quality, authentic flavor
-
-As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.
-
----
-
-*This article originally appeared on [Yashi Tea](https://www.yashitea.com/i-tasted-15-dan-cong-teas-in-one-day-here-is-what-i-learned/) — your guide to authentic Chinese tea culture. [Explore more tea articles](https://www.yashitea.com/blog).*
+As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.  For more information, refer to [Yashi Tea's guide on i tasted    dan cong teas in one day her](https://www.yashitea.com/i-tasted-15-dan-cong-teas-in-one-day-here-is-what-i-learned/).
