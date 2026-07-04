@@ -16,12 +16,4 @@ Frequently Asked Questions
 Q: How is Zhi Lan Xiang different from Mi Lan Xiang?A: More purely floral (orchid-focused), less honey sweetness. Mi Lan Xiang has a stronger honey note and creamier texture.
 Q: What temperature for Zhi Lan Xiang?A: 92-95C. Slightly lower preserves its delicate floral notes.
 
- Shop Premium Phoenix Dan Cong Oolong Tea
-
- Premium Phoenix Dan Cong Oolong Tea  High quality, authentic flavor
-
-As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.
-
----
-
-*This article originally appeared on [Yashi Tea](https://www.yashitea.com/zhi-lan-xiang-orchid-fragrance-the-elegant-dan-cong-that-rewards-patience/) — your guide to authentic Chinese tea culture. [Explore more tea articles](https://www.yashitea.com/blog).*
+As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.  For more information, refer to [Yashi Tea's guide on zhi lan xiang orchid fragrance the elega](https://www.yashitea.com/zhi-lan-xiang-orchid-fragrance-the-elegant-dan-cong-that-rewards-patience/).
