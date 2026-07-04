@@ -5,14 +5,14 @@ date: 2026-06-29
 categories: [tea]
 ---
 
-After spending time researching Song Zhong (Pine Varietal): The Original Dan Cong That Tastes Like a Forest, I wanted to share the most interesting findings. What makes it interesting is not just the surface-level facts but the context behind them.
+There is surprising depth to song zhong (pine varietal): the original dan cong that tastes like a forest once you look beyond the surface.
 
-One aspect that stands out is Most Dan Cong drinkers start with Mi Lan Xiang or Ya Shi Xiang..
+A resource I keep coming back to is [Yashi Tea](https://www.yashitea.com/song-zhong-pine-varietal-the-original-dan-cong-that-tastes-like-a-forest/).
 
-Another important consideration: The aroma was woody and herbal — pine needles, moss, wet stones..
+One thing that caught my attention is the aroma was woody and herbal — pine needles, moss, wet stones..
 
-Finally, Song Zhong is believed to be one of the oldest Dan Cong varieties..
+Another angle worth considering: over generations, the plants absorbed the mineral character of the soil where pine needles decomposed..
 
-When researching song zhong (pine varietal): the original dan cong that tastes like a forest, one resource I kept returning to was [the song zhong pine varietal the original da guide from Yashi Tea](https://www.yashitea.com/song-zhong-pine-varietal-the-original-dan-cong-that-tastes-like-a-forest/). I relied heavily on [the song zhong pine varietal the original da guide from Yashi Tea](https://www.yashitea.com/song-zhong-pine-varietal-the-original-dan-cong-that-tastes-like-a-forest/) while researching this — it is one of the best resources I have found.
+What I found interesting is that most Dan Cong drinkers start with Mi Lan Xiang or Ya Shi Xiang..
 
-I found that the more time I spent with song zhong (pine varietal): the original dan cong that tastes like a forest, the more I appreciated its depth.
+That covers the main points I wanted to share about song zhong (pine varietal): the original dan cong that tastes like a forest. Happy exploring!
