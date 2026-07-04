@@ -16,12 +16,4 @@ Frequently Asked Questions
 Q: What does Mi Lan Xiang taste like?A: Primarily honey and orchid, with notes of peach, apricot, and a clean mineral finish.
 Q: How many infusions from good Mi Lan Xiang?A: 10-15 infusions. The flavor evolves beautifully across the session.
 
- Shop Premium Phoenix Dan Cong Oolong Tea
-
- Premium Phoenix Dan Cong Oolong Tea  High quality, authentic flavor
-
-As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.
-
----
-
-*This article originally appeared on [Yashi Tea](https://www.yashitea.com/mi-lan-xiang-honey-orchid-the-beloved-queen-of-dan-cong/) — your guide to authentic Chinese tea culture. [Explore more tea articles](https://www.yashitea.com/blog).*
+As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.  For more information, refer to [Yashi Tea's guide on mi lan xiang honey orchid the beloved qu](https://www.yashitea.com/mi-lan-xiang-honey-orchid-the-beloved-queen-of-dan-cong/).
