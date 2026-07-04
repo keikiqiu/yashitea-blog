@@ -17,12 +17,4 @@ Frequently Asked Questions
 Q: Does Ya Shi Xiang taste like duck droppings?A: No. It tastes like honey, orchids, and stone fruit. The name has nothing to do with the flavor.
 Q: How do I brew Ya Shi Xiang?A: Use 5g per 150ml gaiwan, water at 90-95C. Rinse quickly, steep 10-15 seconds. It gives 10+ good steeps.
 
- Shop Premium Phoenix Dan Cong Oolong Tea
-
- Premium Phoenix Dan Cong Oolong Tea  High quality, authentic flavor
-
-As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.
-
----
-
-*This article originally appeared on [Yashi Tea](https://www.yashitea.com/ya-shi-xiang-duck-shit-aroma-why-the-best-chinese-tea-has-the-worst-name/) — your guide to authentic Chinese tea culture. [Explore more tea articles](https://www.yashitea.com/blog).*
+As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.  For more information, refer to [Yashi Tea's guide on ya shi xiang duck shit aroma why the bes](https://www.yashitea.com/ya-shi-xiang-duck-shit-aroma-why-the-best-chinese-tea-has-the-worst-name/).
