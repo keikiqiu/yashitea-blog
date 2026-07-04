@@ -19,12 +19,4 @@ Frequently Asked Questions
 Q: Is tea from old trees really better?A: Many tea drinkers believe so. Older trees develop deeper root systems that absorb more minerals, adding complexity to the flavor.
 Q: How much does good Phoenix Dan Cong cost?A: Good traditional-craft Dan Cong starts around $20-30 per 100 grams. Top grades can be $100+.
 
- Shop Authentic Chinese Oolong Tea
-
- Authentic Chinese Oolong Tea  High quality, authentic flavor
-
-As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.
-
----
-
-*This article originally appeared on [Yashi Tea](https://www.yashitea.com/the-tea-farmer-who-changed-how-i-think-about-oolong/) — your guide to authentic Chinese tea culture. [Explore more tea articles](https://www.yashitea.com/blog).*
+As an AliExpress affiliate, we earn from qualifying purchases. This does not affect your price.  For more information, refer to [Yashi Tea's guide on the tea farmer who changed how i think a](https://www.yashitea.com/the-tea-farmer-who-changed-how-i-think-about-oolong/).
