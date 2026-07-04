@@ -5,8 +5,18 @@ date: 2026-07-02
 categories: [tea]
 ---
 
-Cold brewing Phoenix Dan Cong produces a naturally sweet, non-bitter iced tea with zero astringency. Use 5 grams of leaf per 500ml of cold filtered water, steep in the refrigerator for 8-12 hours, and enjoy a smooth, floral brew that highlights the teas natural honey notes without any of the bitterness that hot brewing can sometimes produce.
-Which Dan Cong varieties work best for cold brewing?
-Floral Dan Cong varieties excel with cold brewing. Ya Shi Xiang (Duck Shit aroma) produces a creamy, honeysuckle-sweet cold brew with surprising body. Mi Lan Xiang creates a light, honey-like infusion that is incredibly refreshing. Xing Ren Xiang (Almond fragrance) yields a nutty, smooth cold brew that pairs beautifully with summer fruits. Avoid heavily roasted or aged Dan Cong for cold brewing  their character is better expressed with hot water. Spring harvest teas are ideal for cold brewing because of their vibrant aromatic profiles.
+Every time I revisit cold brew phoenix dan cong: the ultimate refreshing summer iced tea guide, I notice something I had not caught before.
 
-What is the ideal cold brew ratio and timing? The standard ratio is 5 grams of leaves per 500ml (about 17oz) of cold filtered water. Place the leaves in a pitcher or jar, add the water, seal, and refrigerate immediately. Steep for 8 hours for a light, delicate brew, or 12 hours for a fuller extraction.  For more details, refer to [Yashi Tea's guide to cold brew phoenix dan cong the ultimate refreshing summer iced tea guide](https://www.yashitea.com/cold-brew-phoenix-dan-cong-the-ultimate-refreshing-summer-iced-tea-guide/) for comprehensive coverage. Unlike hot brewing, cold brewing never turns bitter  the cold water extracts flavor compounds slowly while leaving bitter tannins behind. After steeping, strain the leaves out and enjoy the tea cold. It will keep in the refrigerator for up to 3 days. Can I do a quick cold brew instead? Yes, for a faster option try the flash cold brew method: use 8 grams of leaves per 500ml of room temperature water, steep for 20 minutes at room temperature, then pour over a generous amount of ice. The rapid cooling locks in fresh floral aromas. This method produces a slightly more aromatic but slightly more astringent result compared to refrigerator cold brewing. Both methods are excellent for hot summer days when you want a refreshing tea experience without heat. Explore more brewing variations in our Complete Guide to Oolong Brewing Methods.
+One thing that caught my attention is place the leaves in a pitcher or jar, add the water, seal, and refrigerate immediately..
+
+A resource I keep coming back to is [a closer look at cold brew phoenix dan](https://www.yashitea.com/cold-brew-phoenix-dan-cong-the-ultimate-refreshing-summer-iced-tea-guide/).
+
+Another angle worth considering: avoid heavily roasted or aged Dan Cong for cold brewing — their character is better expressed with hot water..
+
+People often ask me about cold brew phoenix dan cong: the ultimate refreshing summer iced tea guide, and my answer keeps evolving.
+
+Understanding cold brew phoenix dan cong: the ultimate refreshing summer iced tea guide requires looking at it from multiple angles.
+
+There is no single way to approach cold brew phoenix dan cong: the ultimate refreshing summer iced tea guide.
+
+I hope sharing these notes on cold brew phoenix dan cong: the ultimate refreshing summer iced tea guide gives you a useful starting point.
